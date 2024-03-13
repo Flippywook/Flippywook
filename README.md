@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Flippywook
+- 👀 I’m interested in Evangelion anime
+- You can upgrade your style with exclusive Evangelion merch at https://evangelionmerch.store
